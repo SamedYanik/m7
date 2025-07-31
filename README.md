@@ -1,1 +1,1 @@
-# m7
+mezuniyet projemde birkaç oyun olacak pan tablosu oacak ve geri dönüşüm ile ilgili bir oyun bilgilendirme yapacağım sadece geri dönüşüm değil gerim dönüşüm ve daha fazlası en sevdiğim filmden kendimden ve öğretmenimden bahsedeceğim bunun yanı sıra discord grubumu arkadaşlarımla bu site sayesinde paylaşacağım
